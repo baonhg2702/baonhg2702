@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Bảo (you can call me Damian)  
+# 👋 Hi, I'm Bảo (you can call me Brian)  
 
 **Fresh Graduate in Business/Finance** | **Risk Management Aspirant** | **Data Science Enthusiast**  
 
